@@ -1,0 +1,2 @@
+# SEJARAH-TRIAL-SPM-2026
+Privacy Policy for SEJARAH TRIAL SPM 2026  app
